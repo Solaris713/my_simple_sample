@@ -1,2 +1,2 @@
 
-TRÉhard Timothée IR_G2
+TRÉHARD Timothée IR_G2
